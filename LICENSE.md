@@ -1,4 +1,4 @@
-# 
+# Seguro bitmex trading bot scripts para Mac OS | Élite bitmex trading bot scripts para PC Windows. Con análisis de volumen y arbitraje triangular — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
